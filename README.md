@@ -1,9 +1,9 @@
 # 撸久久最新地址
 :sunglasses::sunglasses:地址发布:sunglasses::sunglasses:
 ==
-:heart: :point_right: 【地址一】 ：http://www.iospink.top
+:heart: :point_right: 【地址一】 ：http://www.9119tv.com
 ------
-:heart: :point_right: 【地址二】 ：http://www.9119tv.com
+:heart: :point_right: 【地址二】 ：http://www.iospink.top
 ------
 :heart: :point_right: 【邮箱联系方式】 ：18setv@gmail.com
 ------
