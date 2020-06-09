@@ -1,4 +1,4 @@
-:heart: :point_right: 【地址一】 ：https://7yy9.com
+:heart: :point_right: 【地址一】 ：https://qq.com.nyy2020.xyz/
 ------
 :heart: :point_right: 【地址二】 ：	https://nyy.h9w9.com
 ------
