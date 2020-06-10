@@ -9,9 +9,3 @@
 # QQ或者微信点不开以上链接请用手机浏览器打开！
 # :sunglasses:重要提醒:sunglasses:收藏本页面，避免迷路！
 :e-mail: __邮箱联系方式: niuyeye2020@gmail.com （以上地址无法访问请发送任意内容获取最新地址）__
-fixes #xxx
-fixed #xxx
-fix #xxx
-closes #xxx
-close #xxx
-closed #xxx
