@@ -1,6 +1,4 @@
-:heart: :point_right: 【地址一】 ：http://82m.info   http://89i.info  http://88r.info  http://5s5.info
-------
-:heart: :point_right: 【地址二】 ：	http://2v3.info   http://88w.info  http://v80.info 
+:heart: :point_right: 【地址一】 ：http://5x4.cc   http://2r2.cc  http://5f7.cc  http://v4x.cc
 ------
 :heart: :point_right: 【邮箱联系方式】 ：thank.xls@gmail.com
 ------
